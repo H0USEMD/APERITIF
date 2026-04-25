@@ -11,6 +11,7 @@
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 <br>
 <i>" eyes are distracting–– you see too much, you don’t see enough. "</i>
+<br>
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 <br><br>
 <ins>BYI</ins>
